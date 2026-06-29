@@ -1,4 +1,4 @@
-#  
+#  top Script for adopt me offers the most advanced adopt me Script, with no cooldown and no clip. Perfect for dominating any match.
 
 
 
